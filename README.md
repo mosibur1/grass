@@ -1,5 +1,5 @@
 BOT GRASS SESSION 2 LIVE NOW !!
-NEW USER TO JOIN : https://app.getgrass.io/register/?referralCode=ItEn6oe3Wj1-h51
+NEW USER TO JOIN : https://app.getgrass.io/register/?referralCode=-KIIuAA5k7_pN1_
 
 need userid : check this video to get userid
 
